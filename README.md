@@ -1,2 +1,2 @@
 # DJI-
-for DJI RECRUIT
+for RECRUIT
